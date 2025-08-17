@@ -1,0 +1,2 @@
+# enhanced_cscv_250810893v1_stream3r_scalable_sequential_3d_reconstruction_wi
+AI-Generated Project: enhanced_cs.CV_2508.10893v1_STream3R_Scalable_Sequential_3D_Reconstruction_wi - Created by WATCHDOG Multi-Agent System
